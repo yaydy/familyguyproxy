@@ -1,2 +1,2 @@
 # familyguyproxy
-not mine
+made by Riftriot#8325
